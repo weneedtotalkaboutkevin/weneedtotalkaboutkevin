@@ -1,13 +1,13 @@
 <div align="center">
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cossette+Texte&duration=2000&pause=600&color=EEEEEE&center=true&width=435&lines=I+used+to+think+I+knew.;Now+I'm+not+so+sure." alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cossette+Texte&duration=2000&pause=600&color=EEEEEE&center=true&width=435&lines=I+used+to+think+I+knew.;Now+I'm+not+so+sure.." alt="Typing SVG" /></a>
      
 <img src="https://files.catbox.moe/gggnm5.webp" 
      width="400" 
      height="200" />
 
   <br>
-  <b> 𖦏 lychee </b> ⁀➴ 17yrs
+  <b> 𖦏 lychee </b> 7teen
 
 problematic & anti-hara <br>
   no dni except -14 
@@ -21,4 +21,4 @@ sign my <a href="https://khatchadourian.atabook.org">atabook</a> if you want </b
 
 
 
-![](https://komarev.com/ghpvc/?username=fujoshis&color=2e2e28&label=.)
+  ![](https://komarev.com/ghpvc/?username=fujoshis&color=2e2e28&label=જ⁀➴󠀠󠀠󠀠ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ)
