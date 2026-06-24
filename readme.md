@@ -1,14 +1,24 @@
 <div align="center">
+
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cossette+Texte&duration=2000&pause=600&color=EEEEEE&center=true&width=435&lines=I+used+to+think+I+knew.;Now+I'm+not+so+sure." alt="Typing SVG" /></a>
      
 <img src="https://files.catbox.moe/gggnm5.webp" 
      width="400" 
      height="200" />
 
-My name is **Lychee** (17) <img src="https://gifcity.carrd.co/assets/images/gallery11/699c7a70.gif?v=3fc8f5cd"> <img src="https://gifcity.carrd.co/assets/images/gallery262/2b1c3a9c.gif?v=3fc8f5cd">
-<p> I love the <a href="https://www.personality-database.com/profile/10554/kevin-khatchadourian-we-need-to-talk-about-kevin-mbti-personality-type">Kevster</a> he's my husband </p>
+  <br>
+  <b> 𖦏 lychee </b> ⁀➴ 17yrs
 
-</h4> 
-<a href="https://khatchadourian.atabook.org">sign my atabook</a>
+problematic & anti-hara <br>
+  no dni except -14 
+  
+
+  <br>
+infatuated with <a href="https://www.personality-database.com/profile/10554/kevin-khatchadourian-we-need-to-talk-about-kevin-mbti-personality-type">kevin</a>, he's my entire world 
+  
+don't one up me on liking him ever (smile) <br>
+sign my <a href="https://khatchadourian.atabook.org">atabook</a> if you want </br>
 
 
-![](https://komarev.com/ghpvc/?username=fujoshis&color=2e2e28&label=stalkers)
+
+![](https://komarev.com/ghpvc/?username=fujoshis&color=2e2e28&label=.)
